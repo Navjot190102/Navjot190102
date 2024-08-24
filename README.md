@@ -1,5 +1,4 @@
 - 👋 Hi, I’m @Navjot190102
-- 👀 I’m interested in plyaing with new ideas, and want to be real in my imagination.
 - 🌱 I’m currently learning MSc Mathematics and Computing
 - 💞️ I’m looking to collaborate on solving the real world problems
 - 📫 How to reach me: navjotaulakh1112@gmail.com
